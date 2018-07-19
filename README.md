@@ -1,1 +1,1 @@
-# NoFap_russian-manual2
+# NoFap_russian-manual
